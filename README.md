@@ -33,7 +33,7 @@
 本ポリシーに関するご質問・ご不明点がある場合は、以下の連絡先までご連絡ください。
 
 **連絡先メールアドレス**  
-yourname@example.com
+yojijukugoquiz@gmail.com
 
 ---
 
